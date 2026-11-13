@@ -63,3 +63,17 @@ More Information
 Visit Netflix to learn more.
 
 Conclusion: Stranger Things is one of my favorite series because it combines friendship, mystery, and adventure.
+
+
+
+My Personal Review
+
+Stranger Things is an entertaining series that teaches the importance of friendship, teamwork, and courage.
+
+ My Rating
+
+*10/10* - I really enjoy watching this series because of its exciting story.
+
+Final Thoughts
+
+I recommend this series to people who enjoy mystery, adventure, and science fiction.
